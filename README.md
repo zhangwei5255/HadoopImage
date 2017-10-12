@@ -1,3 +1,3 @@
 # HadoopImage
 
-‚„‚†‚Ä
+zhangwei is name 
